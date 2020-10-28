@@ -1,5 +1,7 @@
 ### Hi there 👋
+* 2020.05 ~ ing NHN TOAST 🍞
 
+📫 How to reach me: jvckigh@gmail.com
 <!--
 **gbeea1004/gbeea1004** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
