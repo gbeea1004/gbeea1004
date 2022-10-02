@@ -1,5 +1,5 @@
 ### Hi there 👋
-* 2020.05 ~ ing NHN SOFT 🍦
+* 2020.05 ~ ing NHN 🕹
 
 📫 How to reach me: jvckigh@gmail.com
 <!--
